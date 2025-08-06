@@ -1,1 +1,1 @@
-# AniPulls 🦈
+# AniPulls
